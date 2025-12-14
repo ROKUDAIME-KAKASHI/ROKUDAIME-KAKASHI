@@ -1,4 +1,4 @@
-# 👋 Hi, I’m ROKUDAIME-KAKASHI (Nox)
+# 👋 Hi, I’m ROKUDAIME-KAKASHI 
 
 🎓 Student | 💻 Developer | 🔐 Cybersecurity & AI Enthusiast  
 
